@@ -9,7 +9,7 @@
 
 - 🔭 I’m currently working at **The Kingdoms**
 
-- 💬 I have bachelor's degree at **International Commerce & DataTechnology at Myongji University**   
+- 💬 I have bachelor's degree at <br> **International Commerce & DataTechnology at Myongji University**   
 
 - ⚡ Fun fact **everybody acting tough when they up**
  
