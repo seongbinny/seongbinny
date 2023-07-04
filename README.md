@@ -11,7 +11,7 @@
 
 - 💬 I have bachelor's degree at <br> **International Commerce & DataTechnology at Myongji University**   
 
-- ⚡ Fun fact **everybody acting tough when they up**
+- ⚡ **everybody acting tough when they up**
  
 - 📫 **Love you guys**
 
