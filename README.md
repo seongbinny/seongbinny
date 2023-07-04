@@ -9,7 +9,7 @@
 
 - 🔭 I’m currently working at **The Kingdoms**
 
-- 💬 I have bachelor's degree in **International Commerce & DataTechnology**   
+- 💬 I have bachelor's degree in<br> **International Commerce & DataTechnology**   
 
 - ⚡ **everybody acting tough when they up**
  
