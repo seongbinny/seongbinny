@@ -13,6 +13,6 @@
 
 - ⚡ **everybody acting tough when they up**
  
-- 📫 **Love you guys**
+- 📫 **get shit done**
 
 
